@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Amithy-html
 - 👀 I’m interested in: game design, music, linguistics, world-building, and stuff of that lots.
-- 🌱 I’m currently learning: how to make games in Godot.
+- 🌱 I’m currently learning: a lot of things...
 - 📫 How to reach me: idk...
 - 😄 Pronouns: They/Them
 - ⚡ Fun fact: Doppel Keks are my favourite treat!
