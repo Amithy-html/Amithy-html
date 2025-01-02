@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Amithy-html
-- 👀 I’m interested in: game design, music, linguistics, world-building, and stuff of that lots.
+- 👀 I’m interested in: game design, music, linguistics, world-building, 3D animation, writing, and stuff of that lots.
 - 🌱 I’m currently learning: a lot of things...
 - 📫 How to reach me: idk...
 - 😄 Pronouns: They/Them
